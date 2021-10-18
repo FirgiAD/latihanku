@@ -1,0 +1,2 @@
+# latihanku
+latihan aja inimah
